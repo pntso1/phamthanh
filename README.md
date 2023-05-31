@@ -1,1 +1,1 @@
-app đọc truyện cười
+goi y phim netflix
